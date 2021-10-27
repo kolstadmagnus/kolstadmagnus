@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kolstadmagnus
-- 👀 I’m interested in languages, graphic design, computers, and journalism
-- 🌱 I’m currently learning journalism
+- 👀 I’m interested in languages, graphic design, computers, and stories
+- 🌱 I’m currently studying journalism
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me kolstadmagnus[at]gmail[dot]com
 
